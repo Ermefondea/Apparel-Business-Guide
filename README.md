@@ -63,7 +63,7 @@ Marketing & growth tips
 Begin small: begin with gyms, dry cleaners, shoe stores, and college campuses. Introduce subscriptions or sneaker renewal deals. Show before-and-after images and brief videos with definite pictures. Request review and specify promises on spoiled products to generate trust.
 The presentation results in repeat purchases. Add care instructions and invest in durable, fashionable packaging.
 
-Custom printed shoe boxes increase perceived value and allow you to brand each delivery. It is also easier to market high-quality finishes using branded packaging.
+[Custom printed shoe boxes](https://www.silveredgepackaging.com/product/custom-shoe-boxes/) increase perceived value and allow you to brand each delivery. It is also easier to market high-quality finishes using branded packaging.
 
 Also, consider partnerships with cobblers and local retailers. Loyalty programs and referral discounts convert one-time customers into regulars.
 
